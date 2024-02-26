@@ -1,0 +1,1 @@
+I have not yet completed the required courses in the Networking and Cybersecurity curriculum. Please advise on how to proceed. Thank you.
